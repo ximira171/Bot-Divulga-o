@@ -1,1 +1,0 @@
-# Bot-Divulga-o
